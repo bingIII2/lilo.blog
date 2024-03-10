@@ -19,7 +19,7 @@ Der affe hat miri und ali gefrussen
 
 {{<box>}}
 
-Hallihallo, meine Lieben
+Hallihallo, meine Lieben ;)
 
 {{<box>}}
 
