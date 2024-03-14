@@ -34,7 +34,7 @@ Als Leiterin für Soziales und Diakonie bin ich direkt an den Themen beteiligt, 
 
 Nachvollziehbar. Als Vertreterin der katholischen Kirche verstehe ich natürlich, dass die katholische Kirche für ihr Verhalten, ihre Einstellung zur Sexualität, zur Gleichberechtigung und zu strukturellen Themen kritisiert wird. Es scheint sehr wenig Bewegung in diesen Bereichen zu geben.
 
-![](monika-bild-1-.jpg)
+![Monika Moritz im Innenhof des Generationenhauses - ein Ort der Begegnung für alle.](monika-bild-2-.jpg)
 
 **Wie erklären Sie sich dennoch, dass trotz der Kritik viele junge Menschen der Kirche noch immer verbunden bleiben?**
 
