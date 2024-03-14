@@ -36,15 +36,13 @@ Nachvollziehbar. Als Vertreterin der katholischen Kirche verstehe ich natürlich
 
 > "Mein Gott ist für alle Menschen da."
 >
-> – *Monika Moritz* 
+> \- *Monika Moritz* 
 
 **Wie erklären Sie sich dennoch, dass trotz der Kritik viele junge Menschen der Kirche noch immer verbunden bleiben?**
 
 Gleichzeitig gibt die Kirche vielen jungen Menschen auch heute noch Halt und Geborgenheit. Was ich in meiner Kindheit und Jugend erlebt habe, sind wunderschöne Gemeinschaftserlebnisse, die mir sehr viel Kraft gegeben haben, besonders in Zeiten des Heranwachsens, wenn man sich neuen Rollen und Erwartungen stellen muss. In Kirchenkreisen gibt es sehr viele Menschen, die sehr gut verstehen, wie man sich mit diesen Themen auseinandersetzt.
 
 ![Monika Moritz im Innenhof des Generationenhauses - ein Ort der Begegnung für alle.](monika-bild-2-.jpg)
-
-
 
 **Welche Maßnahmen ergreifen Sie oder Ihre Gemeinde, um Kirchenaustritten entgegenzuwirken oder sie zu verhindern?**
 
@@ -56,7 +54,7 @@ Aus der katholischen Kirche auszutreten, ist meines Erachtens schwieriger, als a
 
 > "Die Kirche sollte sich auch raushalten, dabei zu beurteilen, was gesund ist und was krank ist."
 >
-> *– Monika Moritz*
+> *\- Monika Moritz*
 
 **Finden Sie, dass die Kirche mit der Zeit mitgehen sollte und Werte gegenüber der LGBTQAI+ Community verändern sollte, oder sollte die Kirche sich dazu nicht verändern?**
 
