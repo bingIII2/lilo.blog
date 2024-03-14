@@ -34,11 +34,17 @@ Als Leiterin für Soziales und Diakonie bin ich direkt an den Themen beteiligt, 
 
 Nachvollziehbar. Als Vertreterin der katholischen Kirche verstehe ich natürlich, dass die katholische Kirche für ihr Verhalten, ihre Einstellung zur Sexualität, zur Gleichberechtigung und zu strukturellen Themen kritisiert wird. Es scheint sehr wenig Bewegung in diesen Bereichen zu geben.
 
-![Monika Moritz im Innenhof des Generationenhauses - ein Ort der Begegnung für alle.](monika-bild-2-.jpg)
+> "Mein Gott ist für alle Menschen da."
+>
+> – *Monika Moritz* 
 
 **Wie erklären Sie sich dennoch, dass trotz der Kritik viele junge Menschen der Kirche noch immer verbunden bleiben?**
 
 Gleichzeitig gibt die Kirche vielen jungen Menschen auch heute noch Halt und Geborgenheit. Was ich in meiner Kindheit und Jugend erlebt habe, sind wunderschöne Gemeinschaftserlebnisse, die mir sehr viel Kraft gegeben haben, besonders in Zeiten des Heranwachsens, wenn man sich neuen Rollen und Erwartungen stellen muss. In Kirchenkreisen gibt es sehr viele Menschen, die sehr gut verstehen, wie man sich mit diesen Themen auseinandersetzt.
+
+![Monika Moritz im Innenhof des Generationenhauses - ein Ort der Begegnung für alle.](monika-bild-2-.jpg)
+
+
 
 **Welche Maßnahmen ergreifen Sie oder Ihre Gemeinde, um Kirchenaustritten entgegenzuwirken oder sie zu verhindern?**
 
@@ -47,3 +53,11 @@ Wir gehen zum einten aktiv in Bern hin und zeigen den Menschen, was mit ihren Ki
 **Warum ist der Austritt aus der katholischen Kirche oft als schwieriger empfunden als aus der reformierten Kirche?**
 
 Aus der katholischen Kirche auszutreten, ist meines Erachtens schwieriger, als aus der reformierten Kirche auszutreten, weil Katholiken oder Katholikinnen häufig näher an der Kirche sind, oder mehr von der Kirche wissen als die Reformierten. Katholisch sein ist ja auch eine Einstellung, die Ziele stark von der Familie kommt. Und deswegen ist ein Kirchenaustritt, wenn wir so einen Skandal haben, ist auch interessant zu beobachten, dass mal gerne reformierte austreten, stärker sogar auszuwählen als Katholiken, denn die Bindung zur Kirche eine grössere ist bei Katholiken.
+
+> "Die Kirche sollte sich auch raushalten, dabei zu beurteilen, was gesund ist und was krank ist."
+>
+> *– Monika Moritz*
+
+**Finden Sie, dass die Kirche mit der Zeit mitgehen sollte und Werte gegenüber der LGBTQAI+ Community verändern sollte, oder sollte die Kirche sich dazu nicht verändern?**
+
+Die Kirche darf sich bewegen und muss sich bewegen, aber sie muss sich nicht in allen Themen bewegen. Mir ist es ganz wichtig, dass die Kirche für die Menschen in ihrer sexuellen, in ihrer ausgewählten Sexualität immer für sie da ist. Das ist völlig egal, ob man hetero oder homo, oder wie auch immer ist. Ich glaube, das darf nicht wichtig sein, sondern das wichtige ist, dass man Gemeinschaft miteinander lebt, christliche Gemeinschaft miteinander erlebt und christliche Werte weitergibt. Die Gemeinschaft Gottes erfährt.
