@@ -36,7 +36,7 @@ Nachvollziehbar. Als Vertreterin der katholischen Kirche verstehe ich natürlich
 
 > "Mein Gott ist für alle Menschen da."
 >
-> \- *Monika Moritz* 
+> *Monika Moritz* 
 
 **Wie erklären Sie sich dennoch, dass trotz der Kritik viele junge Menschen der Kirche noch immer verbunden bleiben?**
 
@@ -54,7 +54,7 @@ Aus der katholischen Kirche auszutreten, ist meines Erachtens schwieriger, als a
 
 > "Die Kirche sollte sich auch raushalten, dabei zu beurteilen, was gesund ist und was krank ist."
 >
-> *\- Monika Moritz*
+> *Monika Moritz*
 
 **Finden Sie, dass die Kirche mit der Zeit mitgehen sollte und Werte gegenüber der LGBTQAI+ Community verändern sollte, oder sollte die Kirche sich dazu nicht verändern?**
 
