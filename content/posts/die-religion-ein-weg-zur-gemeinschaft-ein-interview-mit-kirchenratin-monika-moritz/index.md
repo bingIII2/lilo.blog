@@ -34,6 +34,8 @@ Als Leiterin für Soziales und Diakonie bin ich direkt an den Themen beteiligt, 
 
 Nachvollziehbar. Als Vertreterin der katholischen Kirche verstehe ich natürlich, dass die katholische Kirche für ihr Verhalten, ihre Einstellung zur Sexualität, zur Gleichberechtigung und zu strukturellen Themen kritisiert wird. Es scheint sehr wenig Bewegung in diesen Bereichen zu geben.
 
+![](monika-bild-1-.jpg)
+
 **Wie erklären Sie sich dennoch, dass trotz der Kritik viele junge Menschen der Kirche noch immer verbunden bleiben?**
 
 Gleichzeitig gibt die Kirche vielen jungen Menschen auch heute noch Halt und Geborgenheit. Was ich in meiner Kindheit und Jugend erlebt habe, sind wunderschöne Gemeinschaftserlebnisse, die mir sehr viel Kraft gegeben haben, besonders in Zeiten des Heranwachsens, wenn man sich neuen Rollen und Erwartungen stellen muss. In Kirchenkreisen gibt es sehr viele Menschen, die sehr gut verstehen, wie man sich mit diesen Themen auseinandersetzt.
