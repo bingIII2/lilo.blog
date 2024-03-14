@@ -14,8 +14,6 @@ Im katholischen kleinen Kirchenrat Bern, ist Monika Moritz für das Ehrenamt Soz
 
 *Aurel Flatz*
 
-Wenn man ins Generationenhaus eintretet, sieht man wie Leute auf der Wiese des Innenhofs Kaffee schlürfen und Kinder spielen. Im Café herrscht eine freundliche Atmosphäre, und man sieht überall wie die Leute zusammen lernen, diskutieren oder einfach nur essen. Das ist ein Ort wo alle Menschen zusammenkommen, egal wer sie sind.
-
 {{<box>}}
 
 * Name: Monika Moritz
@@ -23,3 +21,7 @@ Wenn man ins Generationenhaus eintretet, sieht man wie Leute auf der Wiese des I
 * Herkunft: Deutschland
 * Beruf: Projektleiterin und ehrenamtliche Kirchenrätin
 * Mutter von zwei Kindern
+
+  {{</box>}}
+
+Wenn man ins Generationenhaus eintretet, sieht man wie Leute auf der Wiese des Innenhofs Kaffee schlürfen und Kinder spielen. Im Café herrscht eine freundliche Atmosphäre, und man sieht überall wie die Leute zusammen lernen, diskutieren oder einfach nur essen. Das ist ein Ort wo alle Menschen zusammenkommen, egal wer sie sind.
