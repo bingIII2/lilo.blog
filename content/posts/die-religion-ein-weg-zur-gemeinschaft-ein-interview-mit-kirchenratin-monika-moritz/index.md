@@ -4,7 +4,7 @@ date = "2024-03-14"
 draft = false
 pinned = false
 tags = ["Kirche", "Religion", "Gemeinschaft", "Kirchenrätin"]
-image = "https://images.unsplash.com/photo-1509021436665-8f07dbf5bf1d?q=80&w=1974&auto=format&fit=crop&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D"
+image = ""
 +++
 {{<lead>}}
 
