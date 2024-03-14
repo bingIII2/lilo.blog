@@ -8,7 +8,7 @@ image = "aaron-1-.jpg"
 +++
 {{<lead>}}
 
-Im katholischen kleinen Kirchenrat Bern, ist Monika Moritz für das Ehrenamt Soziales und Diakonie verantwortlich. In diesem Interview spricht sie über die Kirche in der Zukunft, die Kirchenaustritte und wie Gott für alle da ist.
+Im katholischen kleinen Kirchenrat Bern, ist Monika Moritz für das Ehrenamt Soziales und Diakonie verantwortlich. In diesem Interview spricht sie über Gemeinschaft, die Kirchenaustritte und wie Gott für alle da ist.
 
 {{</lead>}}
 
