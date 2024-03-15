@@ -28,7 +28,7 @@ Wenn man ins Generationenhaus eintritt, sieht man überall wie die Leute zusamme
 
 **Inwiefern sehen Sie Ihre Rolle als Kirchenrätin, positive Veränderungen in der Gesellschaft herbeizuführen?**
 
-Als Leiterin für Soziales und Diakonie bin ich direkt an den Themen beteiligt, wo wir positive Veränderungen bewirken können. Wir haben letztes Jahr ein neues Angebot lanciert, bei dem Menschen mit Migrationshintergrund niedrigschwellige Rechtsberatung erhalten können, ohne lange Anmeldeprozesse oder Kosten. Das war deswegen nötig, weil sich die Ausländergesetzgebung, die dazu führen können, dass Menschen trotz langjähriger Arbeit und Beitrag zur Gesellschaft ihren Aufenthaltstitel verlieren und die Schweiz verlassen müssen. Durch solche Angebote erhalten diese Menschen Zugang zu Rechtshilfe und sozialpsychologischer Unterstützung, um Existenzbedrohungen anzugehen. Und das ist sicherlich eine positive Veränderung.
+Als Leiterin für Soziales und Diakonie bin ich direkt an den Themen beteiligt, wo wir positive Veränderungen bewirken können. Wir haben letztes Jahr ein neues Angebot lanciert, bei dem Menschen mit Migrationshintergrund niedrigschwellige Rechtsberatung erhalten können, ohne lange Anmeldeprozesse oder Kosten. Das war deswegen nötig, weil sich die Ausländergesetzgebung so verschärft hat. Das dazu führen kann, dass Menschen trotz langjähriger Arbeit und Beitrag zur Gesellschaft ihren Aufenthaltstitel verlieren und die Schweiz verlassen müssen. Durch solche Angebote erhalten diese Menschen Zugang zu Rechtshilfe und sozialpsychologischer Unterstützung, um Existenzbedrohungen anzugehen. Und das ist sicherlich eine positive Veränderung.
 
 **Wie sehen Sie die Entwicklung der letzten Jahre, in denen immer mehr Menschen der Kirche den Rücken zugewandt haben?**
 
@@ -40,7 +40,7 @@ Nachvollziehbar. Als Vertreterin der katholischen Kirche verstehe ich natürlich
 
 **Wie erklären Sie sich dennoch, dass trotz der Kritik viele junge Menschen der Kirche noch immer verbunden bleiben?**
 
-Gleichzeitig gibt die Kirche vielen jungen Menschen auch heute noch Halt und Geborgenheit. Was ich in meiner Kindheit und Jugend erlebt habe, sind wunderschöne Gemeinschaftserlebnisse, die mir sehr viel Kraft gegeben haben, besonders in Zeiten des Heranwachsens, wenn man sich neuen Rollen und Erwartungen stellen muss. In Kirchenkreisen gibt es sehr viele Menschen, die sehr gut verstehen, wie man sich mit diesen Themen auseinandersetzt.
+Gleichzeitig gibt die Kirche vielen jungen Menschen auch heute noch Halt und Geborgenheit. Was ich in meiner Kindheit und Jugend mit der Kirche erlebt habe, sind wunderschöne Gemeinschaftserlebnisse, die mir sehr viel Kraft gegeben haben, besonders in Zeiten des Heranwachsens, wenn man sich neuen Rollen und Erwartungen stellen muss. In Kirchenkreisen gibt es sehr viele Menschen, die sehr gut verstehen, wie man sich mit diesen Themen auseinandersetzt.
 
 ![Monika Moritz im Innenhof des Generationenhauses - ein Ort der Begegnung für alle.](monika-bild-2-.jpg)
 
@@ -50,7 +50,7 @@ Wir gehen aktiv in Bern hin und zeigen den Menschen, was mit ihren Kirchengelder
 
 **Warum ist der Austritt aus der katholischen Kirche oft als schwieriger empfunden als aus der reformierten Kirche?**
 
-Aus der katholischen Kirche auszutreten, ist meines Erachtens schwieriger, als aus der reformierten Kirche auszutreten, weil Katholiken oder Katholikinnen häufig näher an der Kirche sind, oder mehr von der Kirche wissen als die Reformierten. Katholisch sein ist ja auch eine Einstellung, die Ziele stark von der Familie kommt. Und deswegen ist ein Kirchenaustritt, wenn wir so einen Skandal haben, ist auch interessant zu beobachten, dass mal gerne reformierte austreten, stärker sogar auszuwählen als Katholiken, denn die Bindung zur Kirche eine grössere ist bei Katholiken.
+Aus der katholischen Kirche auszutreten, ist meines Erachtens schwieriger, als aus der reformierten Kirche auszutreten, weil Katholiken oder Katholikinnen häufig näher an der Kirche sind, oder mehr von der Kirche wissen als die Reformierten. Katholisch sein ist ja auch eine Einstellung, die Ziele stark von der Familie kommt. Und deswegen ist ein Kirchenaustritt, wenn wir so einen Skandal haben, ist auch interessant zu beobachten, dass mal gerne Reformierte austreten, stärker sogar auszuwählen als Katholiken, weil die Bindung zur Kirche bei den Katholiken grösser ist.
 
 > "Die Kirche sollte sich auch raushalten, dabei zu beurteilen, was gesund ist und was krank ist."
 >
