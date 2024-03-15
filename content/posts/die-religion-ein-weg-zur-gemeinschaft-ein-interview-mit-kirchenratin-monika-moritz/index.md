@@ -24,7 +24,7 @@ Im katholischen kleinen Kirchenrat Bern, ist Monika Moritz für das Ehrenamt Soz
 
   {{</box>}}
 
-Wenn man ins Generationenhaus eintritt, sieht man wie Leute auf der Wiese des Innenhofs Kaffee schlürfen und Kinder spielen, im Café herrscht eine freundliche Atmosphäre, und man sieht überall wie die Leute zusammen lernen, diskutieren oder einfach nur essen. Das ist ein Ort an dem alle Menschen zusammenkommen, egal wer sie sind.
+Wenn man ins Generationenhaus eintritt, sieht man überall wie die Leute zusammen lernen, diskutieren oder einfach nur einen Kaffee trinken. Das ist ein Ort an dem alle Menschen zusammenkommen, egal wer sie sind.
 
 **Inwiefern sehen Sie Ihre Rolle als Kirchenrätin, positive Veränderungen in der Gesellschaft herbeizuführen?**
 
@@ -44,9 +44,9 @@ Gleichzeitig gibt die Kirche vielen jungen Menschen auch heute noch Halt und Geb
 
 ![Monika Moritz im Innenhof des Generationenhauses - ein Ort der Begegnung für alle.](monika-bild-2-.jpg)
 
-**Welche Maßnahmen ergreifen Sie oder Ihre Gemeinde, um Kirchenaustritten entgegenzuwirken oder sie zu verhindern?**
+**Welche Massnahmen ergreifen Sie oder Ihre Gemeinde, um Kirchenaustritten entgegenzuwirken oder sie zu verhindern?**
 
-Wir gehen zum einten aktiv in Bern hin und zeigen den Menschen, was mit ihren Kirchengeldern passiert und wenn sie ihren Austritt uns mitteilen, dann schenken wir ihnen auch gerne ein Ohr. Wir sagen welche sozialen Institutionen jetzt durch ihren Austritt dann möglicherweise riskieren, nicht mehr unterstützt zu werden. Denn viele Menschen, die in der Kirche sind, in dieser Kirche Fernsehen, wissen gar nicht, was mit ihren Kirchengeldern, mit ihren Kirchensteuern passiert, passiert, und das sind sehr wichtige Institutionen, die wir unterstützen, sei es die kirchliche Gastarbeit, sei es betreutes Wohnen für Menschen, die drogenabhängig sind, sei es aber auch für Menschen, die auf der Straße leben, ohne Papiere oder in der Gesellschaft leben. Wenn sie sehen, was wir alles mit diesen Geldern machen, dann überlegt sich der eine oder andere den Austritt dann schon. 
+Wir gehen aktiv in Bern hin und zeigen den Menschen, was mit ihren Kirchengeldern passiert und wenn sie ihren Austritt uns mitteilen, dann schenken wir ihnen auch gerne ein Ohr. Wir sagen welche sozialen Institutionen jetzt durch ihren Austritt dann möglicherweise riskieren, nicht mehr unterstützt zu werden. Denn viele Menschen, die in der Kirche sind, in dieser Kirche Fernsehen, wissen gar nicht, was mit ihren Kirchengeldern, mit ihren Kirchensteuern passiert, passiert, und das sind sehr wichtige Institutionen, die wir unterstützen, sei es die kirchliche Gastarbeit, sei es betreutes Wohnen für Menschen, die drogenabhängig sind, sei es aber auch für Menschen, die auf der Straße leben, ohne Papiere oder in der Gesellschaft leben. Wenn sie sehen, was wir alles mit diesen Geldern machen, dann überlegt sich der eine oder andere den Austritt dann schon. 
 
 **Warum ist der Austritt aus der katholischen Kirche oft als schwieriger empfunden als aus der reformierten Kirche?**
 
@@ -58,4 +58,4 @@ Aus der katholischen Kirche auszutreten, ist meines Erachtens schwieriger, als a
 
 **Finden Sie, dass die Kirche mit der Zeit mitgehen sollte und Werte gegenüber der LGBTQAI+ Community verändern sollte, oder sollte die Kirche sich dazu nicht verändern?**
 
-Die Kirche darf sich bewegen und muss sich bewegen, aber sie muss sich nicht in allen Themen bewegen. Mir ist es ganz wichtig, dass die Kirche für die Menschen in ihrer sexuellen, in ihrer ausgewählten Sexualität immer für sie da ist. Das ist völlig egal, ob man hetero oder homo, oder wie auch immer ist. Ich glaube, das darf nicht wichtig sein, sondern das wichtige ist, dass man Gemeinschaft miteinander lebt, christliche Gemeinschaft miteinander erlebt und christliche Werte weitergibt. Die Gemeinschaft Gottes erfährt.
+Die Kirche darf sich bewegen und muss sich bewegen, aber sie muss sich nicht in allen Themen bewegen. Mir ist es ganz wichtig, dass die Kirche für die Menschen in ihrer sexuellen, in ihrer ausgewählten Sexualität immer für sie da ist. Das ist völlig egal, ob man hetero oder homo, oder wie auch immer ist. Ich glaube, das darf nicht wichtig sein, sondern das wichtige ist, dass man Gemeinschaft lebt, christliche Gemeinschaft miteinander erlebt und christliche Werte weitergibt. Die Gemeinschaft Gottes erfährt.
